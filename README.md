@@ -1,0 +1,1 @@
+# yaz-l-m-m-h.oryantasyon-devi
